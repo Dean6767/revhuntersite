@@ -1,1 +1,1 @@
-https://deanpola.xyz/RevHunter
+https://lp.revhunter.com.br
